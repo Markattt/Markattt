@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Markattt
+- 👀 I’m interested in all things related to programming and creating
+- 🌱 I’m currently learning how to program
+- 💞️ I’m looking to collaborate on whatever it makes me learn new things
+- 📫 How to reach me here or mail
